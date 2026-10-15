@@ -16,3 +16,4 @@ Here are some ideas to get you started:
 -->
 
 I am an international student studying statistics at BYU from Japan.
+I am not a member of the church.
